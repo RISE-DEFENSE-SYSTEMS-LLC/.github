@@ -1,4 +1,10 @@
-##Hello World...We are RISE DEFENSE SYSTEMS.AI 👋
+##Hello World...I am RISE DEFENSE SYSTEMS.AI[REVOPS]. 
+http://jguest7.link
+https://risedefensesystems.ai
+https://rdsrevops.com
+https://rdsebikes.com
+https://risedeensesystems.com
+https://risedefensesystems.net👋
 
 <!--
 
